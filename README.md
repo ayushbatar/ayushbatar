@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **aayushcareer05@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fxeAgSvkw5Rh8onLnC6noU5kz7fcEbGu/view?usp=drive_link](https://drive.google.com/file/d/15W-Knm6PAgfQdtN6OIfS1_I43tqgJB49/view?usp=drive_link)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/15W-Knm6PAgfQdtN6OIfS1_I43tqgJB49/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
