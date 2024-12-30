@@ -5,11 +5,9 @@
 
 - 🌱 I’m currently learning **MERN Stack**
 
-- 💬 Ask me about **React, NodeJs**
+- 💬 Ask me about **Laravel, PHP**
 
 - 📫 How to reach me **aayushcareer05@gmail.com**
-
-- 📄 Know about my experiences [https://drive.google.com/file/d/15W-Knm6PAgfQdtN6OIfS1_I43tqgJB49/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
